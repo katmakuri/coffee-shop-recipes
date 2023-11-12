@@ -8,6 +8,7 @@
 - 1/4 cup water
 - 1/2 cup of hot water
 - 1 tsp vanilla extract
+- pinch of salt
 
 ## How to Make
 

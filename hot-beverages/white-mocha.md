@@ -33,4 +33,4 @@
 
 ### Step 6
 
-- Top with whipped cream.
+- Top with whipped cream and choclate shavings
